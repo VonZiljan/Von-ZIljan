@@ -1,2 +1,0 @@
-# Von-ZIljan
-IT FUNDAMENTALS
